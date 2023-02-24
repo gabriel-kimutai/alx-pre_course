@@ -1,1 +1,0 @@
-Sic mundus creatus est
